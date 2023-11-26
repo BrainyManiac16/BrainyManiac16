@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @BrainyManiac16
+- 👀 I’m interested in ... everything
+- 🌱 I’m currently learning ... what I don't know yet
+- 💞️ I’m looking to collaborate on ... anything
+- 📫 How to reach me ... not possible to
